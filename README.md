@@ -1,3 +1,3 @@
 Webapp - Mari
 
-www.raquelminasi.com 💇
+www.raquelminasi.com 
